@@ -1,6 +1,7 @@
 hello rira!
 hello my friend 
 good morning
-hgsdchadsfjzsf
-hjvdfuza
+how are you?
+where are you?
+
 
